@@ -1,2 +1,2 @@
-# ridhodwidharmawan.github.io
+# ridhodwid.github.io
 Blog
